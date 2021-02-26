@@ -1,2 +1,1 @@
 # denemeinstagramq
-Beni oku!!
